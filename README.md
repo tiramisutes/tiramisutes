@@ -5,13 +5,13 @@
 
 ### Hi there, I'm tiramisutes 👋
 
-I am a **Genome Study** working on plants.
+I am a **Genome Biologist** working on plants🌳.
 
 ### Projects I love... 🥰
 
 ### What I am upto when I am not busy trying to escape the Matrix... 🕺
 
-You would find me with a book, playing my bass or hanging out with the squad.
+You would find me with a book📖 or surf on the Internet🏄.
 
 ### Stats
 
